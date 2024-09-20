@@ -1,5 +1,8 @@
-## Hi there 👋
+## Нормис, зашедший на мою страницу, гугли короч:
 
-- 🌱 I’m currently learning programming
-- 👯 I’m looking to collaborate
+- постирония
+- двач
+- нижний интернет
+- тонкий троллиинг
+- шизы
 
